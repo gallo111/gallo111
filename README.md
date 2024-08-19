@@ -1,6 +1,6 @@
 - 👋Hola, mi nombre es @gallo negro
 - 👀te interesa jugar?
-- 🌱 I’m currently learning ...
+- 🌱por poco!
 - 💞️me gustan mucho los video juegos
 - 📫no olvides seguirme!
 - 😄estuvo muy facil!
